@@ -114,11 +114,12 @@ Free for use under the **Pixabay Content License**
 
 ###### Catto Boi by Mango-ki
 
-
+https://mango-ki.itch.io/
 
 ###### A Dark Place by Xerstudios
 
-
+https://xerstudios.itch.io/a-dark-place
 
 ###### IMSCARED by Ivan Zanotti
 
+https://mymadnessworks.itch.io/imscared
